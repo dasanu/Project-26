@@ -1,0 +1,3 @@
+         History of St. Louis Gooey Butter Cake
+
+Legend has it that the St. Louis gooey butter cake originated by accident in the 1930s, when a baker mixed up the proportion of butter in one of his coffee cakes. Rather than throw it out, he sold it by the square, and the sugary, sticky confection was a hit. Naturally, a slice of gooey cake ends up next to — or in place of — the pumpkin pie at many a Missourian’s Thanksgiving table. Some bakers like to add pumpkin and spices to the gooey filling. Not so in this yeast-risen version from Molly Killeen, the St. Louis native behind Made by Molly, a dessert company in Brooklyn. Her recipe is soft-centered, crisp-edged and not too sweet. The leftovers are excellent for breakfast the next morning.
